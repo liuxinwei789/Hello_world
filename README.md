@@ -1,8 +1,0 @@
-# Hello_world
-Just another repository
-
-what???
-why???
-where???
-o_w
-0_0
